@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @alien2835
+- 👀 I’m interested in gay stuff
+- 🌱 I’m currently learning how to be happy
+- 💞️ I’m looking to collaborate on anything that will take my bad code
+- 📫 How to reach me... don't
